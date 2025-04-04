@@ -2,7 +2,7 @@
 
 ## Group Members
 
-Assad Bari & Ryan Fiorentini.
+CommunityEngagers
 
 ## Program Information
 
